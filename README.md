@@ -2,7 +2,9 @@
 - 👀 I’m interested in Tech 
 - 🌱 I’m currently learning Electronics and Computer Science
 - 💞️ I’m looking to collaborate on Tech innovations
-- 📫 How to reach me 📷 rxba.8
+- 📫 How to reach me 📷 www.linkedin.com/in/ribba-mogal-27ba4523b
+
+
 
 
 <!---
