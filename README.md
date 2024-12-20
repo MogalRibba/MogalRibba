@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MogalRibba
 - 👀 I’m interested in Tech 
-- 🌱 I’m currently learning Electronics and Computer Science
+- 🌱 I’m currently pursuing Electronics and Computer Science Engineering
 - 💞️ I’m looking to collaborate on Tech innovations
 - 📫 How to reach me 📷 www.linkedin.com/in/ribba-mogal-27ba4523b
 
